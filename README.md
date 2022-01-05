@@ -1,1 +1,0 @@
-# convictss.github.io
